@@ -11,4 +11,4 @@ awdawdad
 awdawdawdawdwargdrgd
 drgdrdsefsedtgdg
 awdaw:
-creating a new bransha is quick % simple.
+creating a new bransha is quick and simple.
